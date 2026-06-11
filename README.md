@@ -1,4 +1,6 @@
 # projeto_conflito_Lari_Helena
 
-### Informação adicional Larissa
-#####
+## Resolvendo conflitos novamente
+## 🫂
+
+
